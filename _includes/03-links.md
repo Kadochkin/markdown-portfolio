@@ -1,1 +1,2 @@
-Replace this with a link to your a GitHub or social media profile.
+[My VK] (https://vk.com/id286942014)
+[My Instagram] (https://www.instagram.com/kadochkin199656/)
