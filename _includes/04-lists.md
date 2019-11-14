@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. Fishing :heart:
+2. Picking up mushrooms
+3. Reading of books
+  
